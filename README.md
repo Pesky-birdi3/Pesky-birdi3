@@ -12,4 +12,4 @@ We're a system so int at your own risk!
 
 (o゜▽゜)o☆
 
-𖥔 [Tumblr](https://r4d1c4lly-d34d.tumblr.com/) 𖥔 [straw](https://peskybirdie.straw.page) 𖥔
+𖥔 [Tumblr](https://r4d1c4lly-d34d.tumblr.com/) 𖥔 [straw](https://thecircustent.straw.page) 𖥔
